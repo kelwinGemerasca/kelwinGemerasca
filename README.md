@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil kelwinGemerasca 🐱‍🏍😄
+## Bem-vindo(a) ao perfil kelwinGemerasca 🐱‍🏍
 
 <div>
   <a href="https://github.com/kelwinGemerasca">
